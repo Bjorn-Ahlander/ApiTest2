@@ -1,1 +1,1 @@
-The work is progressing
+The work is still progressing
